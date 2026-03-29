@@ -13,7 +13,7 @@ $$\color{#FFF5F0}{\text{ ‎ ‎‎ ‎ 𓄼 ⑅˚ ㅤ　　　　　 　 i need
 
 $$\quad$$
 
-$$\color{#D98F85}{\text{ ㅤ　✚ ͝ །　　　　 　 ◟ㅤc*h freelyㅤㅤ　　ㅤ　.˚　 }}$$
+$$\color{#D98F85}{\text{ ㅤ　✚ ͝ །　　　　 　 ◟ㅤc*h freelyㅤㅤ　　.˚　 }}$$
 
 $$\quad$$
 
