@@ -1,4 +1,5 @@
-<p align="center"> <img alt=c635a734 src="https://komarev.com/ghpvc/?username=fuua00&label=spoke&color=FB756F ">
+<p align="center">
+  <img src="https://ghtb-counter.vercel.app/api/counter?username=fuua00&label=Robloxians&color=AA290F&labelColor=ffffff&labelBgColor=AA290F&countColor=ffffff&style=plastic" alt="Robloxians" />
 </p>
 
 <img align="left" width="400" height="720" alt="image" src="https://github.com/fuua00/-/blob/main/Không%20Có%20Tiêu%20Đề204_20260329141839.png?raw=true" />
