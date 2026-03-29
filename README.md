@@ -19,6 +19,14 @@ $$\color{#D98F85}{\text{ ㅤ　✚ ͝ །　　　　 　 ◟ㅤc*h freelyㅤㅤ
 
 $$\quad$$
 
+
+
+
+
+
+
+
+        
 <p align="center">
         ${\textsf{\color{#FDC7AD}˚}}$ ${\textsf{\color{#f5f5f5}˖}}$ ${\textsf{\color{#d100df}𓍢ִ໋}}$ ${\textsf{\color{#000000}‿}}$ ${\textsf{\color{#303ec3}⋆.}}$
 
