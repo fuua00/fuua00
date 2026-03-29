@@ -24,4 +24,4 @@ $$\color{#D98F85}{\text{ ㅤ　✚ ͝ །　　 ◟ㅤc*h freelyㅤㅤㅤㅤ　.
 $$\quad$$
 
 <p align="center">
-    ${\textsf{\color{#ff6aa2}˚}}$ ${\textsf{\color{#f5f5f5}˖}}$ ${\textsf{\color{#d100df}𓍢ִ໋}}$ ${\textsf{\color{#000000}‿}}$ ${\textsf{\color{#303ec3}⋆.}}$
+        ${\textsf{\color{#ff6aa2}˚}}$ ${\textsf{\color{#f5f5f5}˖}}$ ${\textsf{\color{#d100df}𓍢ִ໋}}$ ${\textsf{\color{#000000}‿}}$ ${\textsf{\color{#303ec3}⋆.}}$
