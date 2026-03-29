@@ -51,9 +51,9 @@ $$\quad$$
   ✦ [PiePieh](https://github.com/hperazh) .˚
   <p align="center">
 
-  $$\color{#FFFFFF}{\text{ diagnosed audhd and dyslexia , so please be patient with me }}$$
+  $$\color{#FFFFFF}{\text{  haai twin }}$$
   
-  $$\color{#FDCAC9}{\text{ sensitive people dni }}$$
+  $$\color{#FDCAC9}{\text{ youre the best twin, you mean sm to me }}$$
   
-  $$\color{#D98F85}{\text{ dont copy me }}$$
+  $$\color{#D98F85}{\text{ i love u twin }}$$
 </p>
