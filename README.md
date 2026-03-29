@@ -32,9 +32,6 @@ $$\quad$$
 $$\quad$$
 
 $$\quad$$
-
-<img align="left" width="150" height="720" alt="image" src="https://github.com/fuua00/-/blob/main/Không%20Có%20Tiêu%20Đề201_20260328223248.png?raw=true" />
-<p align="center">
   
 <div align="center">
 
@@ -45,7 +42,3 @@ $$\quad$$
 
 <img width="150" height="175" alt="gif sparkle text divider" src="https://i.imgur.com/laKwa6Y.gif" /><img width="150" height="175" alt="gif sparkle text divider" src="https://i.imgur.com/laKwa6Y.gif" />
 ![](https://raw.githubusercontent.com/fuua00/fuua00/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%81202_20260328230923.png)
-
-$$\quad$$
-
-$$\quad$$
