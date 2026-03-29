@@ -49,3 +49,9 @@ $$\quad$$
 <details><summary>$${\color{#FDC7AD} \space Twin\space !}$$ </summary><p>
   
   ✦ [PiePieh](https://github.com/hperazh) .˚
+  <p align="center">
+
+  $$\color{#FFFFFF}{\text{ diagnosed audhd and dyslexia , so please be patient with me }}$$
+  $$\color{#FDD9BF}{\text{ sensitive people dni }}$$
+  $$\color{#FDCAC9}{\text{ dont copy me }}$$
+</p>
