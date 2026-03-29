@@ -2,7 +2,7 @@
 
 $$\quad$$ 
 
-$$\color{#D98F85}{\text{ ㅤ　ㅤㅤㅤ ㅤ ㅤ― ― ― ― ― ― ― ― ― ― ― ― ― ― ― ― ―ㅤㅤㅤㅤ　ㅤ　 }}$$
+$$\color{#FFF5F0}{\text{ ㅤ　ㅤㅤㅤ ㅤ ㅤ― ― ― ― ― ― ― ― ― ― ― ― ― ― ― ― ―ㅤㅤㅤㅤ　ㅤ　 }}$$
 <p align="center">
   <a href="https://github.com/kittinan/spotify-github-profile"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3176nerz7nxkagecb6ztkcy5oz5e&amp;cover_image=true&amp;theme=novatorem&amp;show_offline=true&amp;background_color=121212&amp;interchange=false&amp;profanity=true&amp;bar_color=53b14f&amp;bar_color_cover=true" />
     
