@@ -33,7 +33,7 @@ $$\quad$$
 
 
 
-<p align="center">
+<p align="right">
 </p>
 </details> 
 
