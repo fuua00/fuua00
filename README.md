@@ -51,7 +51,7 @@ $$\quad$$
   ✦ [PiePieh](https://github.com/hperazh) .˚
   <p align="center">
 
-  $$\color{#FDD9BF}{\text{ diagnosed audhd and dyslexia , so please be patient with me }}$$
+  $$\color{#FFFFFF}{\text{ diagnosed audhd and dyslexia , so please be patient with me }}$$
   
   $$\color{#FDCAC9}{\text{ sensitive people dni }}$$
   
