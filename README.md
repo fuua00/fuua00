@@ -16,4 +16,5 @@ $$\quad$$
 
 $$\color{#FFF5F0}{\text{ ㅤㅤㅤㅤㅤㅤৡ‿◞𓂃𓏧♡ㅤㅤ　ㅤ　 }}$$
 
+<p align="center">
 ${\textsf{\color{#ff6aa2}˚}}$ ${\textsf{\color{#f5f5f5}˖}}$ ${\textsf{\color{#d100df}𓍢ִ໋}}$ ${\textsf{\color{#000000}‿}}$ ${\textsf{\color{#303ec3}⋆.}}$
