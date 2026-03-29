@@ -1,1 +1,1 @@
-<img align="left" width="670" height="950" alt="image" src="Không Có Tiêu Đề204_20260329141839.png" />
+<img align="left" width="670" height="950" alt="image" src="https://github.com/fuua00/-/blob/main/Không%20Có%20Tiêu%20Đề204_20260329141839.png?raw=true" />
