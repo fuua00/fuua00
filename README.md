@@ -16,4 +16,4 @@ $$\quad$$
 
 $$\color{#FFF5F0}{\text{ ㅤㅤㅤㅤㅤㅤৡ‿◞𓂃𓏧♡ㅤㅤ　ㅤ　 }}$$
 
-${\textsf{\color{#ff6aa2}g}}$ ${\textsf{\color{#f5f5f5}n}}$ ${\textsf{\color{#d100df}d}}$ ${\textsf{\color{#000000}r}}$ ${\textsf{\color{#303ec3}f.}}$
+${\textsf{\color{#ff6aa2}˚}}$ ${\textsf{\color{#f5f5f5}˖}}$ ${\textsf{\color{#d100df}𓍢ִ໋}}$ ${\textsf{\color{#000000}🎀}}$ ${\textsf{\color{#303ec3}⋆.}}$
