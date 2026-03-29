@@ -23,6 +23,12 @@ $$\quad$$
 
 $$\quad$$
 
+$$\quad$$
+
+$$\quad$$
+
+$$\quad$$
+
 <div align="center">
 
 <details><summary>$${\color{#FFFFFF} \space Devious\space Duo \space !}$$ </summary><p>
