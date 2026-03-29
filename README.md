@@ -33,6 +33,9 @@ $$\quad$$
 
 $$\quad$$
 
+<img align="left" width="150" height="720" alt="image" src="https://github.com/fuua00/-/blob/main/Không%20Có%20Tiêu%20Đề201_20260328223248.png?raw=true" />
+<p align="center">
+  
 <div align="center">
 
 <details><summary>$${\color{#FFFFFF} \space Devious\space Duo\space Mentions ‎ ‎!}$$ </summary><p>
@@ -45,7 +48,7 @@ $$\quad$$
 
 </p>
 </details> 
-
+<div align="center">
         ${\textsf{\color{#FDC7AD}˚}}$ ${\textsf{\color{#f5f5f5}˖}}$ ${\textsf{\color{#d100df}𓍢ִ໋}}$ ${\textsf{\color{#000000}‿}}$ ${\textsf{\color{#303ec3}⋆.}}$
   
 $$\quad$$
