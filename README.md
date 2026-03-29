@@ -17,9 +17,6 @@ $$\color{#D98F85}{\text{ ㅤ　✚ ͝ །　　　　 　 ◟ㅤc*h freelyㅤㅤ
 
 $$\quad$$
 
-<div align="center">
-  <img align="center" width="400" height="720" alt="image" src="https://raw.githubusercontent.com/fuua00/-/refs/heads/main/1000007057-removebg-preview.png?token=GHSAT0AAAAAADZANLW6H7UJZPXROHRDLQJS2OI7X6Q" />
-
 $$\quad$$
 
 $$\quad$$
