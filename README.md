@@ -20,7 +20,7 @@ $$\color{#D98F85}{\text{ ㅤ　✚ ͝ །　　　　 　 ◟ㅤc*h freelyㅤㅤ
 $$\quad$$
 
 <div align="center">
-  <img align="center" width="400" height="720" alt="image" src="[https://raw.githubusercontent.com/fuua00/-/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%81203_20260329171605.png?token=GHSAT0AAAAAADZANLW7GX6KWGDF5W3B7ITS2OI7RZQ](https://github.com/fuua00/-/blob/main/1000007057-removebg-preview.png?raw=true)" />
+  <img align="center" width="400" height="720" alt="image" src="https://raw.githubusercontent.com/fuua00/-/refs/heads/main/1000007057-removebg-preview.png?token=GHSAT0AAAAAADZANLW6H7UJZPXROHRDLQJS2OI7X6Q" />
 
 $$\quad$$
 
