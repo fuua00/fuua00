@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://ghtb-counter.vercel.app/api/counter?username=fuua00&label=Mapicc&color=EE6C63&labelColor=ffffff&labelBgColor=AA290F&countColor=ffffff&style=plastic" alt="Mapicc" />
+  <img src="https://ghtb-counter.vercel.app/api/counter?username=fuua00&label=Mapicc&color=FDC7AD&labelColor=ffffff&labelBgColor=EE6C63&countColor=ffffff&style=plastic" alt="Mapicc" />
 </p>
 
 <img align="left" width="400" height="720" alt="image" src="https://github.com/fuua00/-/blob/main/Không%20Có%20Tiêu%20Đề204_20260329141839.png?raw=true" />
