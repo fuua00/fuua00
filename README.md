@@ -51,7 +51,7 @@ $$\quad$$
   ✦ [PiePieh](https://github.com/hperazh) .˚
   <p align="center">
 
-  $$\color{#FFFFFF}{\text{  haai twin ⁠≧⁠ᴗ≦ }}$$
+  $$\color{#FFFFFF}{\text{  haai twin (⁠*⁠´⁠ω⁠｀⁠*⁠) }}$$
   
   $$\color{#FDCAC9}{\text{ youre the best twin, you mean sm to me }}$$
   
