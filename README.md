@@ -17,7 +17,7 @@ $$\color{#D98F85}{\text{ ㅤ　✚ ͝ །　　 ◟ㅤc*h freelyㅤㅤㅤㅤ　.
 
 $$\quad$$
 
-$$\color{#FFF5F0}{\text{ ㅤㅤㅤㅤㅤㅤㅤㅤৡㅤㅤ　ㅤ　 }}$$
+$$\color{#FFF5F0}{\text{ ㅤㅤㅤㅤㅤㅤৡㅤㅤ　ㅤ　 }}$$
 
 <p align="center">
   ${\textsf{\color{#ff6aa2}˚}}$ ${\textsf{\color{#f5f5f5}˖}}$ ${\textsf{\color{#d100df}𓍢ִ໋}}$ ${\textsf{\color{#000000}‿}}$ ${\textsf{\color{#303ec3}⋆.}}$
