@@ -29,7 +29,11 @@ $$\quad$$
 
 $$\quad$$
 
-<div align="center">
+$$\quad$$
+
+$$\quad$$
+
+<div align="right">
 
 <details><summary>$${\color{#FFFFFF} \space Devious\space Duo \space !}$$ </summary><p>
 <div align="center">
