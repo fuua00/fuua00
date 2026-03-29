@@ -4,9 +4,6 @@
 
 <img align="right" width="80" height="720" alt="image" src="https://github.com/fuua00/-/blob/main/Không%20Có%20Tiêu%20Đề204_20260329154741.png?raw=true" />
 <p align="center">
-  
-<img align="left" width="400" height="950" alt="image" src="https://raw.githubusercontent.com/fuua00/-/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%81204_20260329141839.png?token=GHSAT0AAAAAADZANLW6FTIYWLHFP6UJPL6M2OJBV3A" />
-<p align="center">
 
 <p align="center">
   <a href="https://github.com/fuua00/-/blob/main/1000007057-removebg-preview.png?raw=true" />
