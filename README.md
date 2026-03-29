@@ -17,7 +17,7 @@ $$\quad$$
 
 $$\color{#D98F85}{\text{ ㅤ　✚ ͝ །　　　　 　 ◟ㅤc*h freelyㅤㅤ　　.˚　 }}$$
 
-<img align="center" width="80" height="720" alt="image" src="https://raw.githubusercontent.com/fuua00/-/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%81203_20260329171605.png?token=GHSAT0AAAAAADZANLW7GX6KWGDF5W3B7ITS2OI7RZQ" />
+<img align="center" width="200" height="720" alt="image" src="https://raw.githubusercontent.com/fuua00/-/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%81203_20260329171605.png?token=GHSAT0AAAAAADZANLW7GX6KWGDF5W3B7ITS2OI7RZQ" />
 
 $$\quad$$
 
