@@ -1,4 +1,4 @@
-<p align="center"> <img alt=c635a734 src="https://komarev.com/ghpvc/?username=fuua00&label=hihihi&color=FB756F ">
+<p align="center"> <img alt=c635a734 src="https://komarev.com/ghpvc/?username=fuua00&label=spoke&color=FB756F ">
 </p>
 
 <img align="left" width="400" height="720" alt="image" src="https://github.com/fuua00/-/blob/main/Không%20Có%20Tiêu%20Đề204_20260329141839.png?raw=true" />
