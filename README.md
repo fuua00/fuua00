@@ -8,11 +8,6 @@
 <p align="center">
   <a href="https://github.com/fuua00/-/blob/main/1000007057-removebg-preview.png?raw=true" />
 
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile"> <img src="https://raw.githubusercontent.com/fuua00/-/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%81204_20260329141839.png?token=GHSAT0AAAAAADZANLW6FTIYWLHFP6UJPL6M2OJBV3A" />
-</a>
-</p>
-
 $$\quad$$
 
 $$\color{#FFF5F0}{\text{ ‎ ‎‎ ‎ 𓄼 ⑅˚ ㅤ　　　　　 　 i need you ‎ ‎‎ ‎　　　  ‎   .ㅤ　 ✧‎‎    }}$$
