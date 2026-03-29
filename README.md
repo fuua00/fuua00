@@ -4,8 +4,6 @@
   <img src="https://ghtb-counter.vercel.app/api/counter?username=fuua00&label=Spoke&color=FDC7AD&labelColor=ffffff&labelBgColor=FA8572&countColor=ffffff&style=plastic"/>
 </p>
 
-<img align="left" width="400" height="720" alt="image" src="https://github.com/fuua00/-/blob/main/Không%20Có%20Tiêu%20Đề204_20260329141839.png?raw=true" />
-
 <p align="center">
   <a href="https://github.com/fuua00/-/blob/main/1000007057-removebg-preview.png?raw=true" />
 
