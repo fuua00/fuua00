@@ -48,7 +48,7 @@ $$\quad$$
 
 <details><summary>$${\color{#FDC7AD} \space Twin\space !}$$ </summary><p>
   
-   [PiePieh](https://github.com/hperazh) .˚
+   ꕀ [PiePieh](https://github.com/hperazh) .˚
   <p align="center">
 
   $$\color{#FFFFFF}{\text{  haai twin ´⁠ω⁠｀ }}$$
