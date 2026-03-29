@@ -9,7 +9,7 @@
 
 $$\quad$$
 
-$$\color{#FFF5F0}{\text{ ‎ ‎‎ ‎ 𓄼 ⑅˚ ㅤ　　　 i need devious duo ‎ ‎‎ ‎ ‎   .ㅤ　 ✧‎‎    }}$$
+$$\color{#FFF5F0}{\text{ ‎ ‎‎ ‎ 𓄼 ⑅˚ ㅤ　　　 i need you ‎ ‎‎ ‎ ‎   .ㅤ　 ✧‎‎    }}$$
 
 $$\quad$$
 
