@@ -40,10 +40,6 @@ $$\quad$$
 $$\quad$$
 
 $$\quad$$
-
-$$\quad$$
-
-$$\quad$$
   
 <div align="center">
 
