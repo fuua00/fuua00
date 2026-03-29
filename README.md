@@ -3,17 +3,16 @@
 <img align="right" width="80" height="720" alt="image" src="https://github.com/fuua00/-/blob/main/Không%20Có%20Tiêu%20Đề204_20260329154741.png?raw=true" />
 <p align="center">
 
-  </p>
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3176nerz7nxkagecb6ztkcy5oz5e&amp;cover_image=true&amp;theme=novatorem&amp;show_offline=true&amp;background_color=121212&amp;interchange=false&amp;profanity=true&amp;bar_color=53b14f&amp;bar_color_cover=true" />
-</a>
-</p>
-
   <img src="https://ghtb-counter.vercel.app/api/counter?username=fuua00&label=Spoke&color=FDC7AD&labelColor=ffffff&labelBgColor=FA8572&countColor=ffffff&style=plastic"/>
 </p>
 
 <p align="center">
   <a href="https://github.com/fuua00/-/blob/main/1000007057-removebg-preview.png?raw=true" />
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile"> <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=3176nerz7nxkagecb6ztkcy5oz5e&amp;cover_image=true&amp;theme=novatorem&amp;show_offline=true&amp;background_color=121212&amp;interchange=false&amp;profanity=true&amp;bar_color=53b14f&amp;bar_color_cover=true" />
+</a>
+</p>
 
 $$\quad$$
 
