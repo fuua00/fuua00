@@ -55,5 +55,5 @@ $$\quad$$
   
   $$\color{#FDCAC9}{\text{ sensitive people dni }}$$
   
-  $$\color{#FB628F}{\text{ dont copy me }}$$
+  $$\color{#D98F85}{\text{ dont copy me }}$$
 </p>
