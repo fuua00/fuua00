@@ -21,7 +21,7 @@ $$\quad$$
 
 <div align="center">
 
-<details><summary>$${\color{#FFFFFF} \space Devious\space Metion \space !}$$ </summary><p>
+<details><summary>$${\color{#FFFFFF} \space Devious\space Duo \space !}$$ </summary><p>
 <div align="center">
 
 ![](https://raw.githubusercontent.com/fuua00/fuua00/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%81203_20260328231025.png)
