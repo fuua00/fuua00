@@ -55,5 +55,5 @@ $$\quad$$
   
   $$\color{#FDCAC9}{\text{ youre the best twin, you mean sm to me }}$$
   
-  $$\color{#D98F85}{\text{ i love u twin }}$$
+  $$\color{#D98F85}{\text{ i love u twin ! }}$$
 </p>
