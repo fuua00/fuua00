@@ -57,7 +57,7 @@ $$\quad$$
 
   $$\color{#FFFFFF}{\text{  haai twin ´⁠ω⁠｀ }}$$
   
-  $$\color{#FDCAC9}{\text{ youre the best twin, you mean sm to me }}$$
+  $$\color{#FDCAC9}{\text{ youre the best , you mean sm to me }}$$
   
   $$\color{#fc9492}{\text{ i love u twin ! }}$$
 
