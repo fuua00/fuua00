@@ -22,9 +22,6 @@ $$\quad$$
 <p align="center">
         ${\textsf{\color{#FDC7AD}˚}}$ ${\textsf{\color{#f5f5f5}˖}}$ ${\textsf{\color{#d100df}𓍢ִ໋}}$ ${\textsf{\color{#000000}‿}}$ ${\textsf{\color{#303ec3}⋆.}}$
 
-</p>
-</details> 
-
-<p align="right"> <details><summary>$${\color{#FFFFFF} \space Devious\space Duo \space !}$$ </summary><p>
+<details><summary>$${\color{#FFFFFF} \space Devious\space Duo \space !}$$ </summary><p>
   
   ![](https://raw.githubusercontent.com/fuua00/fuua00/refs/heads/main/Kh%C3%B4ng%20C%C3%B3%20Ti%C3%AAu%20%C4%90%E1%BB%81203_20260328231025.png)
