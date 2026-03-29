@@ -57,5 +57,5 @@ $$\quad$$
   
   $$\color{#fc9492}{\text{ i love u twin ! }}$$
 
-  $$\color{#cb6d9b}{\text{ <3 }}$$
+  $$\color{#fb618f}{\text{ <3 }}$$
 </p>
