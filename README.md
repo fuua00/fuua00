@@ -53,4 +53,4 @@ $$\quad$$
 
 $$\quad$$
 
-<img align="left" width="80" height="720" alt="image" src="https://github.com/fuua00/-/blob/main/Không%20Có%20Tiêu%20Đề201_20260328223248.png?raw=true" />
+<img align="left" width="100" height="720" alt="image" src="https://github.com/fuua00/-/blob/main/Không%20Có%20Tiêu%20Đề201_20260328223248.png?raw=true" />
