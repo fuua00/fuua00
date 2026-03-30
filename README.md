@@ -68,6 +68,6 @@ $$\quad$$
   $$\color{#fb618f}{\text{ <3 }}$$
   
   <img align="center" width="80" height="720" alt="image" src="https://raw.githubusercontent.com/fuua00/fuua00/refs/heads/main/6399de1281d7e7359d7b0f0171783279.gif" />
-<p align="center"> <img align="center" width="80" height="720" alt="image" src="https://raw.githubusercontent.com/fuua00/fuua00/refs/heads/main/snaplytics_converted_gif.gif" />
+<p align="center"><img align="center" width="80" height="720" alt="image" src="https://raw.githubusercontent.com/fuua00/fuua00/refs/heads/main/snaplytics_converted_gif.gif" />
 <p align="center">
 </p>
