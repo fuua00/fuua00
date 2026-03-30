@@ -66,4 +66,9 @@ $$\quad$$
   $$\color{#fc9492}{\text{ i love u twin ! }}$$
 
   $$\color{#fb618f}{\text{ <3 }}$$
+  ![](https://github.com/fuua00/fuua00/blob/main/snaplytics_converted_gif.gif?raw=true)
+<div align="center">
+  
+  ![](https://github.com/fuua00/fuua00/blob/main/6399de1281d7e7359d7b0f0171783279.gif?raw=true)
+<div align="center">
 </p>
