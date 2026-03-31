@@ -68,5 +68,6 @@ $$\quad$$
   $$\color{#fb618f}{\text{ <3 }}$$
 
   <p align="center">
-    <img width="80" height="720" src="https://raw.githubusercontent.com/fuua00/fuua00/refs/heads/main/6399de1281d7e7359d7b0f0171783279.gif"> <img width="80" height="720" src="https://github.com/fuua00/fuua00/blob/main/snaplytics_converted_gif.gif?raw=true"> <img width="80" height="720" src="https://media1.tenor.com/m/sYBvo7bv8nMAAAAd/spokeishere-lifesteal-smp.gif"> <img width="80" height="720" src="https://media1.tenor.com/m/rkmMK_QVjSIAAAAC/spoke-is-here-spokeishere.gif">
+    <img width="80" height="720" src="https://raw.githubusercontent.com/fuua00/fuua00/refs/heads/main/6399de1281d7e7359d7b0f0171783279.gif"> <img width="80" height="720" src="https://github.com/fuua00/fuua00/blob/main/snaplytics_converted_gif.gif?raw=true"> <img width="80" height="720" src="![Uploading image.png…]()
+"> <img width="80" height="720" src="https://media1.tenor.com/m/rkmMK_QVjSIAAAAC/spoke-is-here-spokeishere.gif">
 </p>
