@@ -21,11 +21,11 @@ $$\quad$$
     
 $$\quad$$
 
-$$\color{#FFF5F0}{\text{ ‎ ‎‎ ‎ 𓄼 ⑅˚ ㅤ　　　　　 　 i need you ‎ ‎‎ ‎　　　  ‎   .ㅤ　 ✧‎‎    }}$$
+$$\color{#FFF5F0}{\text{ ‎ ‎‎ ‎  |།ིྀ ͝  ㅤ　　　　　 　 i need you ‎ ‎‎ ‎　　　  ‎   .ㅤ　 ✧‎‎    }}$$
 
 $$\quad$$
 
-$$\color{#D98F85}{\text{ ㅤ　✚ ͝ །　　　　 　 ◟ㅤc*h freelyㅤㅤ　　.˚　 }}$$
+$$\color{#D98F85}{\text{ ㅤ　 ͝ །　　　　 　 ◟ㅤc*h freelyㅤㅤ　　.˚　 }}$$
 
 $$\quad$$
 
