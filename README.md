@@ -67,7 +67,3 @@ $$\quad$$
   $$\color{#fc9492}{\text{ i love u twin ! }}$$
 
   $$\color{#fb618f}{\text{ <3 }}$$
-
-  <p align="center">
-     <img width="80" height="720" src="https://media1.tenor.com/m/WXWQm3App5UAAAAd/lifesteal-mapicc.gif"> <img width="72" height="720" src="https://media1.tenor.com/m/rkmMK_QVjSIAAAAC/spoke-is-here-spokeishere.gif"> <img width="120" height="720" src="https://media1.tenor.com/m/qjQ9lFaLxOAAAAAC/unstable-universe-lifesteal.gif">
-</p>
