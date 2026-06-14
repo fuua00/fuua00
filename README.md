@@ -1,5 +1,3 @@
-<p align="center">
-  <img align="center" width="600" height="350" alt="image" src="https://github.com/fuua00/wut/blob/main/767ca087606d45de938466c4494ab917.gif?raw=true" />
-
-<p align="center">  
-  work in progress :p
+<img src="https://github.com/fuua00/wut/blob/main/output-onlinegiftools-com.gif?raw=true" width="367" align="left">
+<p align="center"><img src="https://ghtb-counter.vercel.app/api/counter?username=fuua00&color=F3CDEB&style=for-the-badge&label=+++TAXDUO(⁠✿⁠^⁠‿⁠^⁠)++𓈒++&base=4274"></img></p>
+ <br>
