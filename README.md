@@ -18,11 +18,11 @@ $$\quad$$
 
 $$\quad$$
 
- <p align="right"><img src="https://github.com/fuua00/GIFT/blob/main/Không%20Có%20Tiêu%20Đề278_20260616105413.png?raw=true" width="290" height="auto" align="center"></img></a> <br>
+ <p align="right"><img src="https://github.com/fuua00/GIFT/blob/main/Không%20Có%20Tiêu%20Đề278_20260616105413.png?raw=true" width="300" height="auto" align="center"></img></a> <br>
 
-<a href="https://git.io/typing-svg">
-<img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=12&pause=1000&color=CBA0E6&background=49C0FF00&center=true&vCenter=true&width=450&height=45&lines=Won't+chat+first%E2%80%99s+unless+close+friends" />
-</a>
+<p align=right>
+゛<code style="color : lightskyblue">wont chat first unless close friend! .</code> ˶
+</p>
     
 $$\quad$$
 
