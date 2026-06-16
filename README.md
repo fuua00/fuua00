@@ -20,9 +20,9 @@ $$\quad$$
 
 $$\quad$$
 
- <p align="right"><img src="https://github.com/fuua00/GIFT/blob/main/Không%20Có%20Tiêu%20Đề278_20260616105413.png?raw=true" width="300" height="auto" align="center"></img></a> <br>
+ <p align="center"><img src="https://github.com/fuua00/GIFT/blob/main/Không%20Có%20Tiêu%20Đề278_20260616105413.png?raw=true" width="300" height="auto" align="center"></img></a> <br>
 
-<p align=right>
+<p align=center>
 ゛<code style="color : lightskyblue">wont chat first unless close friend! .</code> ˶
 </p>
     
