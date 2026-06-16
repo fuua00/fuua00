@@ -12,11 +12,11 @@
    fuan  or  fua <align="right">
    <p align="center">
 im offtab often  w2i
-   <p align="center">
-won't chat first unless friends.
    
 <p align="right">
    <img src="https://raw.githubusercontent.com/fuua00/GIFT/refs/heads/main/lalala.png?token=GHSAT0AAAAAADZANLW7OJC5FPRLGALE4YIS2RQYVRQ" width="250" align="up">
+    <p align="right">
+won't chat first unless friends.
    
 <img src="https://minecraft.wiki/images/Enchanted_Mace.gif?7c432&format=original" width="40" align="up">
 
