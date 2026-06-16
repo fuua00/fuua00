@@ -8,10 +8,12 @@
 
 <img src="https://readme-typing-svg.demolab.com?font=Cedarville+Cursive&size=25&duration=2500&pause=1000&color=CBA0E6&center=true&width=500&lines=%E2%80%98hey+egg,.%E2%80%99;%E2%80%98why+is+the+sea+glowing+?.%E2%80%99"/>
 
-<br> 
-fuan  or  fua <align="right">
-<p> im offtab often  w2i
-<p> won't chat first unless friends. <br>
+<p align="center">
+   fuan  or  fua <align="right">
+   <p align="center">
+im offtab often  w2i
+   <p align="center">
+won't chat first unless friends. <br>
    
 <p align="right">
    <img src="https://raw.githubusercontent.com/fuua00/GIFT/refs/heads/main/lalala.png?token=GHSAT0AAAAAADZANLW7OJC5FPRLGALE4YIS2RQYVRQ" width="250" align="up">
