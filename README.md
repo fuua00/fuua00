@@ -5,6 +5,11 @@
    ⊹₊ ︶︶︶﹒ㅤ﹒ ︶︶︶ ₊˚⊹
 <p align="left">
    <img src="https://file.garden/ZuZ2lbGXMH8X3xdK/comm%20stuff/spoke/spokepix1.gif">
+   
+$$\quad$$
+
+<p align="left">   
+   <img src="https://minecraft.wiki/images/Enchanted_Mace.gif?7c432&format=original" width="40" align="up">
 
 <img src="https://readme-typing-svg.demolab.com?font=Cedarville+Cursive&size=25&duration=2500&pause=1000&color=CBA0E6&center=true&width=500&lines=%E2%80%98hey+egg,.%E2%80%99;%E2%80%98why+is+the+sea+glowing+?.%E2%80%99"/>
 
@@ -16,9 +21,7 @@ im offtab often  w2i
 <p align="right">
    <img src="https://raw.githubusercontent.com/fuua00/GIFT/refs/heads/main/lalala.png?token=GHSAT0AAAAAADZANLW7OJC5FPRLGALE4YIS2RQYVRQ" width="250" align="up">
     <p align="right">
-won't chat first unless friends.
-   
-<img src="https://minecraft.wiki/images/Enchanted_Mace.gif?7c432&format=original" width="40" align="up">
+won't chat first unless friends
 
 $$\quad$$
 
