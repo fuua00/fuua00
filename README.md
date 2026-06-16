@@ -13,7 +13,7 @@
    <p align="center">
 im offtab often  w2i
    <p align="center">
-won't chat first unless friends. <br>
+won't chat first unless friends.
    
 <p align="right">
    <img src="https://raw.githubusercontent.com/fuua00/GIFT/refs/heads/main/lalala.png?token=GHSAT0AAAAAADZANLW7OJC5FPRLGALE4YIS2RQYVRQ" width="250" align="up">
