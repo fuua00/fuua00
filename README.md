@@ -13,10 +13,6 @@
 im offtab often   w2i
       <p align="center">
                         ౿  .  .
-         
-<p align="center">
-$${\color{#1E3047}｡}$$ $${\color{#3E5263}⁖}$$ $${\color{#687E87}✦}$$ $${\color{#8DA5A6}˖}$$ ㅤ $${\color{#AAAEAD}.}$$ $${\color{#CAB8B4}⊹}$$ $${\color{#E3C0BA}｡}$$ $${\color{#CAB8B4}˖}$$ ㅤ $${\color{#AAAEAD}✧}$$ $${\color{#8DA5A6}⊹}$$ $${\color{#687E87}｡}$$ $${\color{#3E5263}⁖}$$ $${\color{#1E3047}.}$$ ㅤ
-</p>
       
 $$\quad$$
 
