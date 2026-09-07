@@ -35,4 +35,4 @@ ${\textsf{\color{#8564FD}(ㅅ´ ˘ ‘)}}$ 　 ⤿ ${\textsf{\color{#FFFFFF} no 
 
 <div align="center">
 
-  [[ata]](https://fuauw.atabook.org/)　 　 [[gun]](https://guns.lol/taxduoo)　 　 [[prns]](https://pronouns.cc/@fuanw)
+  [[ata]](https://fuauw.atabook.org/)　 　 [[gun]](https://guns.lol/planetIord)　 　 [[prns]](https://pronouns.cc/@fuanw)
